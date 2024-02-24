@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning 
   
 - 💞️ I’m looking to collaborate on website coding 
-- 📫 How to reach me ;benkamerino22@gmail.com
+- 📫 How to reach me ;
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
